@@ -1,2 +1,2 @@
 # Nickname: yim
-# Favorite Food: ข้าวเหนียวหมู
+# Favorite Food: ขนมปัง

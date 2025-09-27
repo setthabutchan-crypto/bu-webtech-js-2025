@@ -1,2 +1,2 @@
 # Nickname: yim
-# Favorite Food: ขนมปัง
+# Favorite Food: KFC

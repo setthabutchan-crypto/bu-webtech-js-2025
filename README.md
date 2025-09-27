@@ -1,2 +1,2 @@
 Nickname: yim
-Favorite Food: ...
+Favorite Food: ข้าวเหนียวหมู
